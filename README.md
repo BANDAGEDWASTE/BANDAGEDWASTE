@@ -3,7 +3,7 @@
 ![image description](https://cdn.discordapp.com/attachments/1264040713864085535/1298096514261979186/883d6285ed7b92e2.jpg?ex=67185216&is=67170096&hm=4d81515e95982f9e313871d8412f030067f74d648a651abd118c906248573429&)
 
 <p align="center">
-"thats what makes me love you."
+"that's what makes me love you."
 </p>
 
 

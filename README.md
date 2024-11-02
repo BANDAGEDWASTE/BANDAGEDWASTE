@@ -4,7 +4,7 @@
 
 </p>
 
-![image description](https://cdn.discordapp.com/attachments/1264040713864085535/1298096514261979186/883d6285ed7b92e2.jpg?ex=67185216&is=67170096&hm=4d81515e95982f9e313871d8412f030067f74d648a651abd118c906248573429&)
+![image description](https://cdn.discordapp.com/attachments/1264040713864085535/1298096514261979186/883d6285ed7b92e2.jpg?ex=67277b56&is=672629d6&hm=2776013dd1bb947d31f5bd99a5e0e96abb8bd2af44981f4d852d0ef564ecd519&)
 
 <p align="center">
 "that's what makes me love you."
